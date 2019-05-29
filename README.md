@@ -16,6 +16,6 @@ R&amp;D
   <br>♡♡♡♡♡♡♡♡
  
   <br>＝＝＝＝//＝＝＝＝
- <br>Trong đầm gì đẹp bằng sen<br>
- <br>Lá xanh bông trắng lại chen nhụy vàng<br>
+ <br>Trong đầm gì đẹp bằng sen
+ <br>Lá xanh bông trắng lại chen nhụy vàng
  
